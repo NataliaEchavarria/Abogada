@@ -1,5 +1,4 @@
-
-# Natalia Echavarría - Abogada Especialista en Derecho Colombiano
+# Natalia Echavarría - Abogada 
 
 
 Sitio web profesional para la abogada Natalia Echavarría, especialista en Derecho Colombiano. Este sitio ofrece información sobre servicios legales, credenciales profesionales y medios de contacto.
